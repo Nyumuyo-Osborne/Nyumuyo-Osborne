@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nyumuyo-Osborne
-- 👀 I’m interested in Environmental Engineering, Machine Learning,Computer Engineering and Data Science
+- 👀 I’m interested in Environmental Engineering, Machine Learning,Computer Engineering, Electrical Engineering and Data Science
 - 💞️ I’m looking to collaborate on projects that address waste management, air pollution and climate change.
 - 📫 How to reach me www.linkedin.com/in/nyumuyo-osborne-613a162b2 or osbornenyumuyo482@gmail.com
 - 😄 Pronouns: He/him
